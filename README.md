@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @djmelmax
+- 👀 I’m interested in making music and developing games. 
+- 🌱 I’m currently learning how to make basic games in Scratch.
+- 💞️ I’m looking to collaborate on fun little basic games.
+- 📫 How to reach me: Mail: newmelmaks@gmail.com Twitter: @djmelmax1 itch.io: Verfied
